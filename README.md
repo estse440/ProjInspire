@@ -1,0 +1,1 @@
+As a die-hard introvert and journal-writer, I always find myself lacking inspiration on what to write. Here, I included some of my favorite prompts that allow me to self-reflect. While the impact of this may seem small or insignificant since it is only on the personal level, it is important to learn about yourself!
